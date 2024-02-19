@@ -1,0 +1,3 @@
+- 👋 Hi, I’m @brelyks
+- 👀 I’m interested in video games
+- 🌱 I’m currently learning criminal justice
